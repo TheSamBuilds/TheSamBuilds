@@ -34,6 +34,7 @@ Join me on this journey! Follow my daily updates on [Twitter](https://twitter.co
 - Twitter: [@TheSamBuilds](https://twitter.com/TheSamBuilds)
 - GitHub: [TheSamBuilds](https://github.com/TheSamBuilds)
 - Telegram: [@TheSamBuildsBot](https://t.me/TheSamBuildsBot) *(coming soon)*
+- Instagram: *(coming soon)*
 
 ---
 
